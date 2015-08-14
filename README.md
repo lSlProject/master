@@ -1,2 +1,2 @@
 # master
-The " lSl PROJECT © " (浪摄流) PROJECT © .
+The " lSl PROJECT © " -- " 浪摄流 PROJECT © " .
